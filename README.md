@@ -1,3 +1,3 @@
-### Hi there 👋
+### Salom hammaga 👋
 
-<br> Mening ismim Mirzayev Xolmirza </br>
+### Mening ismim Mirzayev Xolmirza
